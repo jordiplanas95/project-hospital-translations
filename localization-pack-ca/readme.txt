@@ -1,0 +1,1 @@
+Traducció al Català
